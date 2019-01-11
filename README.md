@@ -18,4 +18,8 @@ C'est alors qu'il rencontra une étrange créature qui lui dit en ces termes :
 
 > Bonjour voyageur, recherches-tu le *croissant de lune*?
 
+Enthousiaste, le voyageur répondit:                 
+         
+> Oui, je suis désespérement à la recherche du croissant de lune. Seriez-vous en mesure de m'aider?                                                                                                                                            
 
+Mais ce que Polo ne savait pas, c'est qu'il avait à faire face à un imposteur.
