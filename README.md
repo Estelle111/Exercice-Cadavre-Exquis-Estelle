@@ -18,4 +18,9 @@ C'est alors qu'il rencontra une étrange créature qui lui dit en ces termes :
 
 > Bonjour voyageur, recherches-tu le *croissant de lune*?
 
+> Oui mais on me parle uniquement de pain au chocolat...
+
+> En effet tout le monde nie le croissant de lune car il est trop compliqué et abstrait, pour le trouver je t'invite à trouver ta paix intérieure en méditant, observer les étoiles t'amènera à lui.
+C'est seulement en découvrant qui tu es vraiment que tu pourras rentrer en contact avec le *croissant de lune*.
+
 
