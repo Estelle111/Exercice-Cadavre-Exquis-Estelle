@@ -13,7 +13,7 @@ Et le piegon répondit:
 
 > Pain au chocolat? 
 
-Ne supportant plus les jacassements hystériques de l'animal, et ne pouvant prétendre être un [ornithologue](https://imgur.com/PdCu4qm) compétent, il décida de remonter$
+Ne supportant plus les jacassements hystériques de l'animal, et ne pouvant prétendre être un [ornithologue](https://imgur.com/PdCu4qm) compétent, il décida de remonter dans les étoiles. 
 C'est alors qu'il rencontra une étrange créature qui lui dit en ces termes :
 
 > Bonjour voyageur, recherches-tu le *croissant de lune*?
